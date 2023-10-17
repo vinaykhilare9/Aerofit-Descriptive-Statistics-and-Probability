@@ -48,7 +48,7 @@ The KP781 treadmill has advanced features that sell for $2,500.
 
 ### Model KP281:
 
-1. Most affordable and entry level and Maximum Selling Product.
+1.Most affordable and entry level and Maximum Selling Product.
 
 2.This model popular amongst both Male and Female customers
 
