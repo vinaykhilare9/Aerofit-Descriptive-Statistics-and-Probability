@@ -98,7 +98,7 @@ The KP781 treadmill has advanced features that sell for $2,500.
     
 7. The age range of KP781 buyers is roughly between 25-30 years.
 
-## Insights Conclusion:
+## Insights:
 1. KP281 is the most purchased product, followed by KP481 & KP781
 2. There are more Male buyers than Female.
 3. There are more Parterned buyers than Single customers.
